@@ -1,2 +1,2 @@
 # kyle-emmett
-Be advice 
+Be Nice.
